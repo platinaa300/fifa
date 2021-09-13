@@ -1,3 +1,0 @@
-thygrt
-trhdf
-rths
